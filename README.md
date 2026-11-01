@@ -1,6 +1,6 @@
 # Hi!!! My name is Khoi Hoang 🙋
 
-💡 I am a Game Developer, Animator and Designer with a passion for creating.
+💡 I am a Game Developer, Animator and Designer based in Melbourne.
 
 🧑‍🎓 I'm currently a Game/Animation student at Swinburne University of Technology.
 
